@@ -1,5 +1,6 @@
 ### Hi there 👋
 
+![giphy](https://github.com/Anshalali/Anshalali/assets/125813799/170bd45c-7af3-4b02-af58-0c732faacc9c)
 
 
 Here are some ideas to get you started:
